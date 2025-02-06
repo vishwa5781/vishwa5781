@@ -1,7 +1,7 @@
 ### **About Myself:**
 - 👋 Hi, I’m Kaarthikk Vishwa S.
 - 👀 Data Analytics and Machine Learning Enthusiast from Erode, India.
-- 🌱 I’m currently looking for fultime job in 2024.
+- 🌱 I’m currently looking for fultime job in 2025.
 - ⚡ Fun Fact: I love playing Chess ♞.
 
 ### **Connect with me:**
